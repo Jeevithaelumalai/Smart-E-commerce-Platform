@@ -1,1 +1,0 @@
-# Smart-E-commerce-Platform
